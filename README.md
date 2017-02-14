@@ -8,3 +8,5 @@ These are a few of my favorite things:
 - Warm woolen mittens
 - lettuce and tomato
 - bacon and cheese
+- i hate mayonaise and mustard
+- i hate my life
